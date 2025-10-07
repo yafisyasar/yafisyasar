@@ -1,7 +1,7 @@
 ## Hi, i'm Yafis Yasar ✨
 
 🔭 computer student at Amrita vishwa vidyapeetham kochi campus<br/>
-👾 CTF palyer @bi0s_kochi<br/>
+👾 Discord Admin @bi0s_kochi<br/>
 🌲link tree [link](linktr.ee/yafis_yasar)
 
 
