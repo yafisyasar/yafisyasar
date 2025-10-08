@@ -2,7 +2,7 @@
 
 🔭 computer student at Amrita vishwa vidyapeetham kochi campus<br/>
 👾 Discord Admin @bi0s_kochi<br/>
-🌲link tree [[link](linktr.ee/yafis_yasar)](https://linktr.ee/yafis_yasar)
+🌲link tree [link](linktr.ee/yafis_yasar)
 
 
 ## 🌐 Socials:
