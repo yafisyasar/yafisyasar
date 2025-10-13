@@ -1,4 +1,4 @@
-## Hi, i'm Yafis Yasar ✨
+## Hi, I'm Yafis Yasar ✨
 
 🔭 computer student at Amrita vishwa vidyapeetham kochi campus<br/>
 👾 Discord Admin @bi0s_kochi<br/>
